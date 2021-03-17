@@ -1,2 +1,0 @@
-# JK-s-Home
-practice
